@@ -1,0 +1,10 @@
+##### *Similar devices* 
+- [iPhone XS](https://www.apple.com/iphone-xs/) 
+- [iPhone XS Max](https://www.apple.com/iphone-xs/) 
+- [iPhone XR](https://www.apple.com/iphone-xr/) 
+- [iPhone 8](https://www.apple.com/shop/buy-iphone/iphone-8) 
+- [iPhone 8 Plus](https://www.apple.com/shop/buy-iphone/iphone-8) 
+- [iPhone 7](https://www.apple.com/shop/buy-iphone/iphone-7) 
+- [iPhone 7 Plus](https://www.apple.com/shop/buy-iphone/iphone-7) 
+- [iPhone 6](https://www.apple.com/iphone/compare/) 
+- [iPhone 6 Plus](https://www.apple.com/iphone/compare/)
