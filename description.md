@@ -18,3 +18,13 @@ Apple CEO Tim Cook called the new iPhone X “the biggest leap forward since the
 ###### &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; *iPhone X Gray* 
 ![iPhone X Gold](https://store.storeimages.cdn-apple.com/4668/as-images.apple.com/is/image/AppleInc/aos/published/images/i/ph/iphone/xs/iphone-xs-gold-select-2018?wid=470&hei=556&fmt=png-alpha&.v=1550795410474) 
 ###### &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; *iPhone X Gold* 
+##### *Similar devices* 
+- [iPhone XS](https://www.apple.com/iphone-xs/) 
+- [iPhone XS Max](https://www.apple.com/iphone-xs/) 
+- [iPhone XR](https://www.apple.com/iphone-xr/) 
+- [iPhone 8](https://www.apple.com/shop/buy-iphone/iphone-8) 
+- [iPhone 8 Plus](https://www.apple.com/shop/buy-iphone/iphone-8) 
+- [iPhone 7](https://www.apple.com/shop/buy-iphone/iphone-7) 
+- [iPhone 7 Plus](https://www.apple.com/shop/buy-iphone/iphone-7) 
+- [iPhone 6](https://www.apple.com/iphone/compare/) 
+- [iPhone 6 Plus](https://www.apple.com/iphone/compare/)
